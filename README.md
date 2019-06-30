@@ -1,0 +1,2 @@
+# novineka
+link khusus blognovineka
